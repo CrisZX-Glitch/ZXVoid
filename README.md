@@ -1,2 +1,0 @@
-# ZXVoid
-Script obfuscator
