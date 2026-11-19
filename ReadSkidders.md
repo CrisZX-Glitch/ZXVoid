@@ -1,2 +1,1 @@
-# ZXVoid
-Blocked Skidder, go learn to program lol 😂
+hello skidders, get the fuck off
